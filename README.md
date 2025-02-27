@@ -1,0 +1,2 @@
+# notionmandymandy
+configlifemandy
